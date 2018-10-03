@@ -3,4 +3,4 @@
 #### By Bryan Williams
 
 ##### This is me
-![alt text](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.15752-9/42953184_656840798049305_5648162919460896768_n.jpg?_nc_cat=110&oh=64a84fa4fde9c2955ff5d3baddf3f5d7&oe=5C1BDED6)
+![alt text](https://scontent-nrt1-1.xx.fbcdn.net/v/t1.15752-9/42991334_321144842028777_5057746023116439552_n.jpg?_nc_cat=109&oh=b57596047367c57e42ddfa94ee1d9376&oe=5C210FC0)
